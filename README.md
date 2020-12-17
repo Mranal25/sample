@@ -1,13 +1,3 @@
 "# sample" 
 kya he kr loge tum
-no 
-ca
-jbj
-scsscscs
-dsfsdsfd
-dhsvfs
-Mranal Gupta    
-guptassss
-ejieieemmskdmslkmlk;mdslkcdmclmdlckmd
-kjdkjsbdskjbskjbkaskdskdsa
-this is something kind of this situation
+this aspire account
